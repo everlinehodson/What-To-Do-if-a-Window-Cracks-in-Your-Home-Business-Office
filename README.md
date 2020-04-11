@@ -1,0 +1,2 @@
+# What-To-Do-if-a-Window-Cracks-in-Your-Home-Business-Office
+This may seem obvious, but every person comes into contact with glass on a daily basis. We don’t think about the idea that glass might break and be dangerous, or that it will have to get fixed. Humans often have contingency plans in many different cases. You likely know what to do in the event your tire tears on the road, or your computer breaks at work https://morethanglass.com/ .
